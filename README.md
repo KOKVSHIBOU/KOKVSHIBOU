@@ -1,1 +1,2 @@
-<img width="736" height="671" alt="Titelloses 273_20261108144709" src="https://github.com/user-attachments/assets/4c2c791b-1e90-471a-99f8-846f3fc51b96" />
+<img width="736" height="659" alt="Titelloses 273_20261108155442" src="https://github.com/user-attachments/assets/c37cacf1-7296-4f5b-8ccd-f2b6330d5f02" />
+maybe in another life i didn't need to be a samurai. 
